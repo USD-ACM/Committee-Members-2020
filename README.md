@@ -1,4 +1,4 @@
-#List of 2020 Community Members
+# List of 2020 Community Members
 
 **Santosh KC**: Senior Faculty Advisor
 
