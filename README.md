@@ -1,21 +1,19 @@
-List of Club members - 2020
+**Santosh KC**: Senior Faculty Advisor
 
-Santosh KC: Senior Faculty Advisor
+**Zachary Tschetter**: Faculty Advisor
 
-Zachary Tschetter: Faculty Advisor
+**Ramina Rajbhandari**: President
 
-Ramina Rajbhandari: President
+**Carrie Minette** - Vice President
 
-Carrie Minette - Vice President
+**Priyanka Sreerama**: Treasurer
 
-Priyanka Sreerama: Treasurer
+**Suja Basnet**: Secretary
 
-Suja Basnet: Secretary
+**Shaurya Khurana**: Communication Officer
 
-Shaurya Khurana: Communication Officer
+**Amul Neupane**: Member
 
-Amul Neupane: Member
+**Shuai Zhao**: Member
 
-Shuai Zhao: Member
-
-Sam Tinklenberg: Member
+**Sam Tinklenberg**: Member
