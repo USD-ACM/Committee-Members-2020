@@ -1,4 +1,4 @@
-# List of 2020 Commitee Members
+# List of 2020 Committee Members
 
 **Santosh KC**: Senior Faculty Advisor
 
